@@ -4,7 +4,7 @@
 
 ### Fresher — Cloud, DevOps & Security
 
-Still deciding exactly where I specialize — treating that as a feature, not a problem.
+Building. Breaking. Understanding. Securing.
 
 📍 Karachi, Pakistan &nbsp;|&nbsp; 📧 [aaribalikhan26@gmail.com](mailto:aaribalikhan26@gmail.com) &nbsp;|&nbsp; 💼 [LinkedIn](https://www.linkedin.com/in/aarib-ali-khan-0b782b322)
 
